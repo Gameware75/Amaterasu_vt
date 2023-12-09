@@ -1,6 +1,6 @@
 # Amaterasu_vt Fan Projekte 
 Hallo ich bin Gamesu aka Gameware75 ich habe für die vtberin [@Amaterasu_vt](https://amaterasuvt.carrd.co/) mehrere kleine Projekte gemacht diese sind hier alle aufgelistet
-<br> </br>
+
 
 # Fan Projekte 
 
@@ -14,8 +14,7 @@ Alle amsu Mini Games findet ihr unter
 ## Amsu TikTok Filter
 ⌛ Coming Soon ⌛
 
-<br> </br>
-<br> </br>
+
 # Wer ist Amaterasu_vt Eigentlich?
 
 ## About me
