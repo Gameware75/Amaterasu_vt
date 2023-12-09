@@ -1,5 +1,5 @@
 # Amaterasu_vt Fan Projekte 
-
+Hallo ich bin Gamesu aka Gameware75 ich habe für die vtberin [@Amaterasu_vt](https://amaterasuvt.carrd.co/) mehrere kleine Projekte gemacht diese sind hier alle aufgelistet
 <br> </br>
 
 # Fan Projekte 
@@ -28,3 +28,6 @@ Bist du auf der Suche nach einer liebevollen Community mit Safespace Feeling? Ei
 ## Meine socials
 https://amaterasuvt.carrd.co/
 
+
+# Wer bin ich Eigentlich?
+> i am just a poor programmer ;)
